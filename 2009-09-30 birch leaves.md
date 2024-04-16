@@ -1,11 +1,11 @@
 ~~countless fluttering birch leaves
 fan the evening breeze
-through my open door
+through my open door~~
 
-~~fluttering birch leaves
+~~fluttering birch leaves~~
 fan the evening breeze
 through my open door
 
 birch leaves —
-fan the evening breeze
+fanning the evening breeze
 through my open door
